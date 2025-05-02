@@ -1,1 +1,1 @@
-to do : [] make more professional graphs 
+Needed to make changes as Sir says 
